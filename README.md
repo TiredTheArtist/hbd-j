@@ -1,2 +1,2 @@
 # hbd-j
-Jendeh's gift by Kaworu
+Betrayer's gift by Kaworu
