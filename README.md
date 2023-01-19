@@ -1,2 +1,2 @@
 # hbd-j
-Judy's gift by Kaworu
+Jendeh's gift by Kaworu
